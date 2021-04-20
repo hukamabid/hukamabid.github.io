@@ -16,7 +16,7 @@ Email				    : hukamabid@gmail.com
 
 Nationality			: Indonesia
 
-Youtube				  : https://bit.ly/2zu4QgV
+Youtube				  : [https://bit.ly/2zu4QgV](https://bit.ly/2zu4QgV)
 
 [Privacy policy](https://sites.google.com/view/hukamaprivacypolicy/)
 
